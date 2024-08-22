@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **https://t.me/Atilla4334**
 
-- ⚡ Fun fact **I have a namesake cactus named Attila**
+- ⚡ Fun fact **I have a cat and a namesake cactus named atilla**
 
   <img style="display: block;-webkit-user-select: none;margin: auto;cursor: zoom-in;" src="https://cdn.discordapp.com/attachments/546664825795772416/1276316740845961226/photo_2024-08-23_02-05-58.jpg?ex=66c91617&amp;is=66c7c497&amp;hm=35e5470de5a9c35d9ab16c684cd5c7d4d0288c8ec518a610d14d8bd7e6e5a345" width="200" height="200">
 
